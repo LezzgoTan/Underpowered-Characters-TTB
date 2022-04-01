@@ -1,4 +1,4 @@
-  ## TTB's Underpowered Characters
+## TTB's Underpowered Characters
 
 In this page, we're gonna be talking about underpowered characters in the game Teen Titans Battlegrounds. There are roughly 7 out of 21 normal characters that can be classified as **underpowered** or **off-meta** in which can still be considered as underperforming in the game and in this page, we'll talk about them.
 
@@ -13,14 +13,14 @@ Hold on, they were powerhouses before, what happened? Yeah, long story short, in
 ![image](https://user-images.githubusercontent.com/99950589/161293781-0a5afb95-bdcf-4206-82c4-ae612fc1fe5a.png)
 
 
-### Apprentice Robin (Off meta)
+### Apprentice Robin (Off-meta)
 He's a solid character, but with the rise of fast moving characters as the meta... yeah his immobility and narrow attacks won't get him that close to the meta.
 
 ![image](https://user-images.githubusercontent.com/99950589/161294121-2769cfaf-98c4-4b20-a83f-018d89187acc.png)
 
 
 
-### Bumblebee (Undepowered)
+### Bumblebee (Underpowered)
 Rule of thumb in the game where range is better than melee. She's basically the opposite of Starfire's capability of a primary range, secondary melee character. She's primary melee, secondary range. Her melee doesn't really give her any significant advantage over the opponent like Robin except for her attack speed. Her fly is just as fast as Starfire so basically, she's just a worse version of Starfire. Yikes.  
 ![image](https://user-images.githubusercontent.com/99950589/161294405-f9ba74a4-22b2-4edf-bba5-d14d917ef421.png)
 
